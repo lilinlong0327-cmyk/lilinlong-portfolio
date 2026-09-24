@@ -10,4 +10,4 @@
 
 在线访问：<https://lilinlong0327-cmyk.github.io/lilinlong-portfolio/>
 
-作品集中的原创 IP 内容均为自主创作／求职样片；AI 文创图片为概念效果图，并非实物打样。
+作品集中的原创 IP 内容均为自主创作／求职样片。
